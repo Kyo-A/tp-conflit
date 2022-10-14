@@ -1,6 +1,6 @@
 # tp-conflit
 
-On m'appelle l'ovni le sangggggggggg PANPANPAN la mitraillette hello
+On m'appelle l'ovni le sangggggggggg PANPANPAN la mitraillette
 On m'appelle l'ovni la fusee BIMBAMBOUM
 On m'appelle l'ovni
 On m'appelle l'ovni
